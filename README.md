@@ -1,1 +1,1 @@
-tarea de intranet
+tarea intranet
